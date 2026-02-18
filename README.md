@@ -2,3 +2,6 @@
 Conceptos de la clase de tecnologia
 :v  xddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddaaaaaaaaaaaaaaaaeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeagria
 pasen porno
+hola
+mucho gusto
+bienvenido a la casa de los sustos
